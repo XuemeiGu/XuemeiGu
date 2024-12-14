@@ -1,4 +1,4 @@
-I like exploring the unknown 🔭
+I like exploring the unknown 🔭🔬✨
 
 <!--
 **XuemeiGu/XuemeiGu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
